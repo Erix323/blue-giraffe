@@ -10,4 +10,4 @@
 
   
   
-Winona is the **Place to be** with long history of rivalries, 
+Winona is the **Place to be**. With the natural wonders of the bluffs carved out thousands of years ago from Glaciers. Are you looking for some time on the river? Well you are in luck as the mighty Missippi is only steps away in Winona come on over.
